@@ -4,5 +4,11 @@
 
 
 
-Nas minhas férias eu fui para a minha cidade antiga, rever meus amigos. Foi muito legal, saímos muito e curtimos, aproveitei para rever alguns familiares.
+Nas minhas férias eu fui para a minha cidade antiga rever meus amigos. Foi muito legal, saímos muito e curtimos, aproveitei para rever alguns familiares também. 
+
+Mas fui embora logo depois.
+
+
+
+
 

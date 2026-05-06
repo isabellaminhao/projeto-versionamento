@@ -2,8 +2,6 @@
 
 \## Um livro de: Isabella Minhão
 
-
-
 Nas minhas férias eu fui para a minha cidade antiga rever meus amigos. Foi muito legal, saímos muito e curtimos, aproveitei para rever alguns familiares também.
 
 Mas fui embora logo depois.
@@ -12,5 +10,5 @@ Não vejo a hora de ir novamente.
 
 Alteração super top.
 
-Resolveu meus problemas
+Resolveu meus problemas.
 
